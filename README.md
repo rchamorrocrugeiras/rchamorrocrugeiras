@@ -34,6 +34,6 @@
 
 ## 📬 Contacto
 
-**📧 Correo electrónico:** `renechacru07@gmail.com@gmail.com`
+**📧 Correo electrónico:** `rchamorrocrugeiras@danielcastelao.org`
 
 ---
